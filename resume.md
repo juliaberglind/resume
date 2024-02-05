@@ -10,7 +10,7 @@
 #### AAS in arts & sciences
 - Graduated June 2022
 ## Experience
-1. Engineering, Design, and Society Office Assistant, Colorado School of Mines, August 2023-Present
-2. Second-Year Project Engineer Intern, Compass Construction, May 2023-August 2023
-3. Project Engineer Intern, Compass Construction, June 2022-August 2022
-4. Cashier & Trainer, Garlic Crush, May 2021-June 2022
+1. **Engineering, Design, and Society Office Assistant**: Colorado School of Mines, August 2023-Present
+2. **Second-Year Project Engineer Intern**: Compass Construction, May 2023-August 2023
+3. **Project Engineer Intern, Compass Construction**: June 2022-August 2022
+4. **Cashier & Trainer**: Garlic Crush, May 2021-June 2022
